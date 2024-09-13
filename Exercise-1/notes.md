@@ -1,0 +1,2 @@
+I Want to do this course to prove i can be consistent with my work and eventually make enough money to do anything i want.
+I am commited to do at least half an hour worth of lessons of teh smart contract security 
